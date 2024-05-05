@@ -1,4 +1,16 @@
-![alt text](https://media.discordapp.net/attachments/896125229800239165/1236332219652509788/rentry_20240504230228.png?ex=66379f9b&is=66364e1b&hm=2d01d9fd9f10f84345601be0e99819793f25033301b1672b9051a3435c7048dc&)
+# WIP! Stay tuned for its completion!
+![sonic](https://media.discordapp.net/attachments/896125229800239165/1236572778577137706/17148923186166764783504488899682.gif?ex=66387fa4&is=66372e24&hm=767056104befb9d75ab3b3672ddff02a3cb28d1e72774749fe9d92c063b79450&)
 
-- ⇢ ˗ˏˋ <sup>ONE MORE GOD REJECTED</sup> ࿐ྂ
-.. ⌗ ୧ ׅ𖥔 ۫`mashiro` <sub>is working in it!</sub> ... ⋄ 𓍯
+- ⇢ ˗ˏˋ <sup>ONE MORE GOD REJECTED</sup> ࿐ྂ<br>
+⌗ ୧ ׅ𖥔 ۫<sub>nächte hinein träume</sub> ... ⋄ 𓍯<br>
+<sup>`this will look better on mobile!`</sup><br>
+---
+ׂ╰┈➤ ‎ ‎ ようこそ‎ ‎ ‎  ༉‧₊˚.<br>
+
+`mashiro` <sub>is the name ;</sub> <br>
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎<sup>speed is my game !</sup><br>
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ <sub>I'm `18` years old,</sub><br>
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ <sup>brimming with potential.</sup><br>
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ <sub>an apathetic `INTP` in reality.</sub><br>
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ <sup>~I have two moods: good or bad.~</sup><br>
+‎ ‎ ‎ ‎ <sub>I live in `the Philippines`, *unfortunately*.</sub><br>
